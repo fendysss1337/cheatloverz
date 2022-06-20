@@ -1,5 +1,5 @@
 # cheatloverz
-cheatloverz fortnite💀💀💀💀💀💀💀💀💀💀💀
+cheatloverz fortnite💀
 
 https://discord.gg/esHPVMQHna zt
 
